@@ -1,2 +1,0 @@
-# qijundz
-qijundz company website
